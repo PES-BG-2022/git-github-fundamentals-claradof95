@@ -1,0 +1,1 @@
+Lo que espero de este curso es lograr entender la lógica tras el código que me piden y realizarlo con confianza. Así mismo, quisiera que dentro de la clase hicieramos una clase de práctica de los comandos que se han aprendido durante la mañana. Eso me ayudaría mucho.
